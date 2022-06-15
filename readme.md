@@ -1,1 +1,1 @@
-Now my cat is just flexing on me.
+My cat has gotten bored and left.
